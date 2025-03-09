@@ -1,1 +1,0 @@
-# DTKduttacontest.github.io
